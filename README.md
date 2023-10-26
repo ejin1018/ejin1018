@@ -1,4 +1,4 @@
-### Jeong E Jin
+### Jeong E Jin ☼
 
 <!--
 **ejin1018/ejin1018** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
